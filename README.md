@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Coding,Digital Bisnis**
 
-- 📫 How to reach me **felixdarma1206@gmail.com**
+- 📫 How to reach me **felixdarma1206@gmail.com** **+62-877-6800-4022**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
